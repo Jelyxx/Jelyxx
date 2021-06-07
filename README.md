@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jelyx
--  I’m interested in Improving the World.
+-  I’m interested in improving the World.
 - 🌱 I’m currently Learning to collaborate.
 - 💞️ I’m looking to collaborate on interesting things.
 - 📫 How to reach me: here! And maybe somewhere else :)
